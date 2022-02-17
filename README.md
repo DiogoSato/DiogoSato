@@ -1,4 +1,4 @@
-### Hi there, I'm Diogo Sato Kreknicki, feel welcome!
+### Hi there, I'm Diogo Sato, feel welcome!
 
 <div align="left">
   <a href="https://github.com/DiogoSato">
